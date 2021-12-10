@@ -1,1 +1,1 @@
-# Joshua
+# Equipo de Joshua y Renata
